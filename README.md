@@ -1,0 +1,1 @@
+# SchoolAI-alternate-version
